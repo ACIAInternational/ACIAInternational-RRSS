@@ -1,2 +1,2 @@
 # ACIAInternational-RRSS
-Redes sociales de la Asociación de Cultura, Idiomas y Arte International (ACIA INTERNATIONAL)
+Redes sociales de la Asociación Cultural de Idiomas y Arte International (ACIA INTERNATIONAL)
